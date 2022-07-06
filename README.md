@@ -2,4 +2,4 @@
 - 👀 I’m interested in everything now deemed obsolete.
 - 🌱 I’m currently updating my Microsoft BASIC skills.
 - 💞️ I’m looking to collaborate on everything worth putting in a computer museum.
-- 📫 How to reach me \u0070\u0061\u0074\u0072\u0069\u0063\u006b\u0040\u0068\u006f\u006d\u0065\u0063\u006f\u006d\u0070\u0075\u0074\u0065\u0072\u006d\u0075\u0073\u0065\u0075\u006d\u002e\u006e\u006c or for design/code work mail@5701.nl
+- 📫 How to reach me patrick@homecomputermuseum.nl or for design/code work mail@5701.nl
