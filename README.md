@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Van-Halen
+- 👀 I’m interested in everything now deemed obsolete.
+- 🌱 I’m currently updating my Microsoft BASIC skills.
+- 💞️ I’m looking to collaborate on everything worth putting in a computer museum.
+- 📫 How to reach me patrick@homecomputermuseum.nl
